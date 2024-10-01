@@ -1,8 +1,8 @@
 Hieucutehotme
 
-## about me
+## About me
 Anh Hiếu bảnh vcl
-### next
+### Next
 Bảnh đ chịu được
 ## I want to say
 dcm Hưng bún
